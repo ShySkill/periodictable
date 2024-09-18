@@ -10,3 +10,6 @@ lmk on discord if you have any problems or open an issue
 Ex: Plugging in H for Hydrogen
 
 ![image](https://github.com/user-attachments/assets/5594340a-9698-4700-a73d-f76250270a08)
+
+
+https://dice909090909.github.io/
